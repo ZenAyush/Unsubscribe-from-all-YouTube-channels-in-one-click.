@@ -8,7 +8,7 @@ How to do it:
 
 3️⃣ Select "Console".
 
-4️⃣ Copy and paste this text (https://jpst.it/2Bq1I).
+4️⃣ Copy and paste this text (https://github.com/ZenAyush/Unsubscribe-from-all-YouTube-channels-in-one-click./blob/main/1yfeu.js).
 
 5️⃣ Press "Enter".
 
